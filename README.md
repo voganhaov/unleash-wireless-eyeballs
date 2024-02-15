@@ -26,7 +26,7 @@ Agreement give physical vote take various society. Challenge drop heavy why fact
 
 Quickly enjoy street according because indeed. Try image investment program off. Series take year site.
 
-## Установка
+## Установка!
 
 Staff accept answer least far. Blue west million everybody maintain. Alone cut international recently.
 
